@@ -1,0 +1,2 @@
+# tarea6
+DE YESSICA ARREGUIN MORA
